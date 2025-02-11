@@ -20,3 +20,6 @@ Created digital art from normal images in adobe photoshop.
 ![two girl gossip digital art](https://github.com/user-attachments/assets/fa2fcef5-3ec8-4e26-bea9-2d1271838143)
 ![10](https://github.com/user-attachments/assets/520e597c-83c4-492d-b915-13dafb6f7456)
 
+# Baby and mother hand
+![baby-mother hand digital art](https://github.com/user-attachments/assets/4b3f3342-770f-4d7b-abe4-672b6ba80ee2)
+![12](https://github.com/user-attachments/assets/3ef10c66-a992-41d4-a30a-dc90f90703f7)
