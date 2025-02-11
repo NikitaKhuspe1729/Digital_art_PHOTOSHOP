@@ -9,4 +9,9 @@ Created digital art from normal images in adobe photoshop.
 ![14](https://github.com/user-attachments/assets/be6316aa-c42a-4f2d-85f8-0f46cc32b2fa)
 
 # Old man
+![old man digital art](https://github.com/user-attachments/assets/53e91364-aef7-4934-b738-fb8fb89d1816)
 ![9](https://github.com/user-attachments/assets/a16d4695-a266-48de-8913-68100d006005)
+
+# Flower in hand 
+![flower in hand digital art](https://github.com/user-attachments/assets/4c0d56f3-d4b3-48c1-a1ac-bd72d25dcd8e)
+![11](https://github.com/user-attachments/assets/d8787ab5-a3a1-4459-8ab4-c2088a8c33d1)
