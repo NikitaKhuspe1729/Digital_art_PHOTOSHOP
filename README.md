@@ -15,3 +15,8 @@ Created digital art from normal images in adobe photoshop.
 # Flower in hand 
 ![flower in hand digital art](https://github.com/user-attachments/assets/4c0d56f3-d4b3-48c1-a1ac-bd72d25dcd8e)
 ![11](https://github.com/user-attachments/assets/d8787ab5-a3a1-4459-8ab4-c2088a8c33d1)
+
+# Two girl gossip
+![two girl gossip digital art](https://github.com/user-attachments/assets/fa2fcef5-3ec8-4e26-bea9-2d1271838143)
+![10](https://github.com/user-attachments/assets/520e597c-83c4-492d-b915-13dafb6f7456)
+
